@@ -15,3 +15,16 @@ are attached with each collection.
 - [SQDG](SQDG/) by shoggot
 - [Talon](Talon/) by Brandon Furtwangler
 - [Unnamed](Vengeful-Wrath/) by "Vengeful Wrath"
+
+---
+
+
+##### DIP
+
+![](./DIP - Kailh Choc Keycap by rutomoda May 02, 2020 (Thingiverse 4330754)/images/dip-prototype.jpg)
+
+![](DIP - Kailh Choc Keycap by rutomoda May 02, 2020 (Thingiverse 4330754)\images\DIP.png)
+
+![](Vengeful-Wrath\images\hhkylaxqgxm61.jpg)
+
+

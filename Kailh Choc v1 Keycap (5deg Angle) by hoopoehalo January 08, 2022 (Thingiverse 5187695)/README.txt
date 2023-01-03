@@ -1,0 +1,1 @@
+Kailh Choc v1 Keycap (5deg Angle) by hoopoehalo on Thingiverse: https://www.thingiverse.com/thing:5187695
